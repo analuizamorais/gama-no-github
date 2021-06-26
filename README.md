@@ -1,0 +1,1 @@
+Estou gostando muito do curso até o momento, as aulas são objetivas, os conteúdos são muito bem explicados e a equipe de suporte no Slack é muito atenciosa a todas as dúvidas. É um imenso prazer estar participando do Hiring Coders, estou grata pela oportunidade.
